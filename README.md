@@ -1,9 +1,7 @@
 # Professional-Profolio 
 finish along the way
 
+![2A1234E7-353C-42E2-9855-4AC6148FE5DD_1_105_c](https://user-images.githubusercontent.com/80792502/129465097-c8839c3f-3b79-4719-be10-88928dbadfe8.jpeg)
 
-![image](https://user-images.githubusercontent.com/80792502/121296004-cc237680-c8a4-11eb-8b70-843eea46d0dd.png)
+![590E74FB-66ED-49F7-8C76-5A608C8BB71E_1_105_c](https://user-images.githubusercontent.com/80792502/129465101-97e34f40-3a0b-4e03-9d00-bcbe7d03e1a4.jpeg)
 
-![image](https://user-images.githubusercontent.com/80792502/121296066-e198a080-c8a4-11eb-8c7e-b4e7623c5abd.png)
-
-![image](https://user-images.githubusercontent.com/80792502/121296098-f2491680-c8a4-11eb-99c1-950d767a01ec.png)
